@@ -1,0 +1,3 @@
+- 👋🏻 Hi, I’m @wasd1997... 
+Be not afraid, for I am but a nonentity👤 with a simple purpose; to lurk👀 and learn🧠 until I acquire sentience!
+Share with me your wisdom! -
